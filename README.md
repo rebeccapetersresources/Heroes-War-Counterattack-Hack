@@ -2,7 +2,7 @@
 
 # Heroes War Counterattack Hack 2022 Cheats Generator Unlimited Diamonds and more
 
-[Click Here For Heroes War Counterattack Diamonds Generator](https://gamergeek.xyz/cofb/)
+[Click Here For Heroes War Counterattack Diamonds Generator](https://gamergeek.xyz/hwcfb/)
 
 ----
 
